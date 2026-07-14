@@ -88,10 +88,10 @@ Each week's folder contains:
 
 ## 📬 Connect With Me
 
-**Arquam Ali**
+**Mursaleen Zia Hanc**
 
-- GitHub: https://github.com/arquam39
-- LinkedIn: *http://linkedin.com/in/arquam-ali-shakeeb/*
+- GitHub: [mursalhanc028-ux](https://github.com/mursalhanc028-ux)
+- LinkedIn: [*mursaleen-zia-6148173b8*](https://www.linkedin.com/in/mursaleen-zia-6148173b8/)
 
 ---
 
